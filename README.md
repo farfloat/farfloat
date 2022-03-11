@@ -27,6 +27,9 @@ Akari Nibu
 ### :cherry_blossom:sakurazaka 46
 Kira Masumoto
 
+### :cherry_blossom:nogizaka 46
+Ayane Suzuki
+
 ## Contact
 
 near#far-float.de
